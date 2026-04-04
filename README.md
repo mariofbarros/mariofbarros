@@ -9,5 +9,5 @@ I'm constantly eager to learn and discover new things. Specifically, the main ar
 Other fun facts:
 
 * I love playing video games and studying game design.
-* I have two cats, Poeira and Farinha! 
+* I have two cats: Poeira and Farinha! 
 * I make excellent cakes. 🎂
